@@ -1,1 +1,1 @@
-# kauung-bluewax
+# kaung-bluewax
